@@ -8,7 +8,7 @@ Back to the fun stuff. I typically like building websites in either Weebly or Wo
 
 ## Manassas Moving Company - what does it mean?
 
-I've been working with my local mover over the past couple of months and have helped generate a ton of leads so far. AdWords is by far the easiest way to get results for your clients, fast too. The great thing about AdWords is that it tells you if you're on the right track. When using AdWords, you get data on which keywords perform better than others. I've learned that the two most important keywords by far are [Moving Company Manassas](https://www.ablemoving.com/) and Movers Manassas.
+I've been working with my local mover in Manassas VA over the past couple of months and I've helped generate a ton of leads so far. AdWords is by far the easiest way to get results for your clients, fast too. The great thing about AdWords is that it tells you if you're on the right track. When using AdWords, you get data on which keywords perform better than others. I've learned that the two most important keywords by far are [Moving Company Manassas](https://www.ablemoving.com/) and Movers Manassas.
 
 ![Northern Virginia Moving Company](https://www.ablemoving.com/wp-content/uploads/moving-companies-rockville-md-image-07.jpg)
 
